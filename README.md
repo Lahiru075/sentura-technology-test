@@ -1,1 +1,0 @@
-# sentura-technology-test
